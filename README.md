@@ -1,5 +1,5 @@
-Discord : https://discord.gg/3rm8Jdf2Vq
+Discord : https://discord.gg/C3aN2bBVbB
 
-<img src="http://cloud.xlife.fr/images/scripts/modern-identity.png">
+<img src="https://i.imgur.com/E4Cdz8W.png">
 
 Vidéo : https://youtu.be/IaaIOokjNu0
